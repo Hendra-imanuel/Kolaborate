@@ -1,5 +1,5 @@
 Kolaborate
 ==========
 
-dasdadsaddasdsada
-asdadsa
+Kolaborate together artinyaaaa
+saya baru saja masuk
